@@ -5,3 +5,9 @@
 ![image](https://github.com/alexaecn/CSE_StepResponse_ME_4205_Group4_2024/assets/159086894/27d93ca2-0532-466a-8847-8d58642eed57)
 ![image](https://github.com/alexaecn/CSE_StepResponse_ME_4205_Group4_2024/assets/159086894/fae6f245-07b9-4c50-9164-ca348c3b2483)
 
+
+
+
+
+
+
