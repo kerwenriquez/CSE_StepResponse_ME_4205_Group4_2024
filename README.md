@@ -8,6 +8,10 @@
 
 
 
+![image](https://github.com/kerwenriquez/CSE_StepResponse_ME_4205_Group4_2024/assets/159046830/3a5b5dc1-279f-4eb6-afa5-2ddfa3c95f31)
+![image](https://github.com/kerwenriquez/CSE_StepResponse_ME_4205_Group4_2024/assets/159046830/7aee692d-c055-4e4d-a285-fb99bbd673d7)
+![image](https://github.com/kerwenriquez/CSE_StepResponse_ME_4205_Group4_2024/assets/159046830/029daf98-0799-4eec-bc57-7173d5975b66)
+![image](https://github.com/kerwenriquez/CSE_StepResponse_ME_4205_Group4_2024/assets/159046830/d03cb07a-357f-4239-986e-e9c79356b71b)
 
 
 
